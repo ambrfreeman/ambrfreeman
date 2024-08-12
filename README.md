@@ -5,7 +5,7 @@
 
 
 
-<h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
+<h1 style="font-size: 3rem">౨ৎ ⋆｡˚ [ " hunger hurts ,, but starving works . "</h1> 
 
 
 ![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
