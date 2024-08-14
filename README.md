@@ -25,19 +25,20 @@
 
 <p align="center"><img src="https://github.com/user-attachments/assets/d2a64a3b-f882-4538-b4df-7e2ecf69727d" width="175"/> <img src="https://github.com/user-attachments/assets/116b352c-77e9-401f-8a50-f2efca53b711" width="175"/>
 
-<p align="center"><img src="https://github.com/user-attachments/assets/23d3e57d-cdb2-4b2c-bba2-d3e7245c9e59" width="500"/>
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile)
+<p align="center"><img src="https://github.com/user-attachments/assets/23d3e57d-cdb2-4b2c-bba2-d3e7245c9e59" width="500"/>   
 
 
 
+<p align="center"><img src="https://github.com/user-attachments/assets/55ade786-e240-4352-85ae-7f2025f7a8f2" width="400"/>
 
-
-
+<p align="center">♡   𝐚𝐫𝐭 𝐛𝐲 𝐮𝐦𝐢 / 𝐠𝐡𝐨𝐮𝐥𝐢𝐚𝐬𝐠𝐟 𝐨𝐧 𝐭𝐰𝐭 :𝟑</p>
 
 
 ![image](https://github.com/user-attachments/assets/9d4e5260-4c4b-4b01-93bb-cabc153186ce)
+
+
+
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile) 
 
 
 
