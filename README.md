@@ -1,6 +1,11 @@
 ![image](https://github.com/user-attachments/assets/a9e05c9a-cb7c-480d-8104-d4250494c18d)
 
 
+###  --- **" you were a shitty girlfriend . " - tara carpenter , scream 2022 .**
+
+
+
+
 ![image](https://github.com/user-attachments/assets/7e4215fe-5c83-4c6d-b910-9cb779598d2f)
 
 
