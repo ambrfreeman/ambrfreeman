@@ -1,7 +1,7 @@
 
 
 ###  --- **" you were a shitty girlfriend . " - tara carpenter , scream 2022 .**
-
+[spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs) [pronouns pge](https://pronouns.cc/@animalwhisperer) [priv twt](https://x.com/pickingflowrss) [rblx](https://www.roblox.com/users/1681193139/profile?friendshipSourceType=PlayerSearch)
 
 
 
