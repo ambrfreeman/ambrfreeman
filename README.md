@@ -13,7 +13,7 @@
 
 <p align="center">♡   𝙪𝙣𝙝𝙚𝙖𝙡𝙩𝙝𝙞𝙡𝙮 obsessed w mikey madison</p>
 
-<p align="center">♡   HUGE fan of 𝙡𝙞𝙛𝙚 𝙞𝙨 𝙨𝙩𝙧𝙖𝙣𝙜𝙚 , 𝙮𝙚𝙡𝙡𝙤𝙬𝙟𝙖𝙘𝙠𝙚𝙩𝙨 , 𝙨𝙘𝙧𝙚𝙖𝙢 , 𝙛𝙞𝙣𝙖𝙡 𝙙𝙚𝙨𝙩𝙞𝙣𝙖𝙩𝙞𝙤𝙣 , etc .</p>
+<p align="center">♡   HUGE fan of 𝙡𝙞𝙛𝙚 𝙞𝙨 𝙨𝙩𝙧𝙖𝙣𝙜𝙚 , 𝙮𝙚𝙡𝙡𝙤𝙬𝙟𝙖𝙘𝙠𝙚𝙩𝙨 , 𝙨𝙘𝙧𝙚𝙖𝙢 , 𝙩𝙡𝙤𝙪 , 𝙛𝙞𝙣𝙖𝙡 𝙙𝙚𝙨𝙩𝙞𝙣𝙖𝙩𝙞𝙤𝙣 , etc .</p>
 
  <p align="center">♡   𝙞𝙣𝙨𝙖𝙣𝙚𝙡𝙮 shy ,, usually won't int / talk first ^_^</p>
 
