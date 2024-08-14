@@ -5,8 +5,6 @@
 
 
 
-<<h1 style="font-size: 5rem">౨ৎ ⋆｡˚         [ " hunger hurts ,, but starving works . "</h1> 
-
 
 <p align="center"><img src="https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3"</p>
 
