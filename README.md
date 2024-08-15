@@ -31,7 +31,8 @@
 <p align="center">♡   𝐚𝐫𝐭 𝐛𝐲 𝐮𝐦𝐢 / 𝐠𝐡𝐨𝐮𝐥𝐢𝐚𝐬𝐠𝐟 𝐨𝐧 𝐭𝐰𝐭 :𝟑</p>
 
 
-![image](https://github.com/user-attachments/assets/9d4e5260-4c4b-4b01-93bb-cabc153186ce)
+<p align="center"><img src="https://github.com/user-attachments/assets/5687fb39-dc40-4d33-8b34-dbb85a2067ea"</p>
+
 
 
 
