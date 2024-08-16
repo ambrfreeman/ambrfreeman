@@ -4,6 +4,9 @@
 [spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs) [pronouns pge](https://pronouns.cc/@animalwhisperer) [priv twt](https://x.com/pickingflowrss) [rblx](https://www.roblox.com/users/1681193139/profile?friendshipSourceType=PlayerSearch)
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=novatorem&show_offline=false&background_color=0a0c10&interchange=false&bar_color=564e4e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
 
 <p align="center"><img src="https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3"</p>
 
