@@ -37,10 +37,10 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/5687fb39-dc40-4d33-8b34-dbb85a2067ea"</p>
 
 
-<p align="center">me if u even care 🔽</p>
+<p align="center">she's so crazzzyy!!!! love her!!! 🤣🤣🤣 🔽</p>
 
-https://github.com/user-attachments/assets/bb2f564d-e6ac-4f6e-9e95-d95cf375d2ba
 
+https://github.com/user-attachments/assets/57613e9f-2e03-4eaf-a14f-3e7ec9477d79
 
 
 
