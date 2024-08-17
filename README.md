@@ -1,3 +1,6 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=26&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=%22+welcome+to+%F0%9D%90%9A%F0%9D%90%9C%F0%9D%90%AD+%F0%9D%9F%91+.+%22)](https://git.io/typing-svg)
+
+
 ![](https://komarev.com/ghpvc/?username=ambrfreeman&style=flat&color=3d3d3d&label=clicks&abbreviated=true)
 
 ###  --- **" you were a shitty girlfriend . " - tara carpenter , scream 2022 .**
