@@ -37,7 +37,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/5687fb39-dc40-4d33-8b34-dbb85a2067ea"</p>
 
 
-<p align="center">she's so crazzzyy!!!! love her!!! 🤣🤣🤣 🔽</p>
+<p align="center">she's so crazy and silly i need to kiss her mouth 🔽</p>
 
 
 https://github.com/user-attachments/assets/6713424a-1744-41f5-abd9-9adaf14f2a45
