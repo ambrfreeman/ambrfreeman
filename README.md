@@ -40,7 +40,6 @@
 <p align="center">she's so crazzzyy!!!! love her!!! 🤣🤣🤣 🔽</p>
 
 
-https://github.com/user-attachments/assets/57613e9f-2e03-4eaf-a14f-3e7ec9477d79
-
+https://github.com/user-attachments/assets/6713424a-1744-41f5-abd9-9adaf14f2a45
 
 
