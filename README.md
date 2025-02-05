@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ambrfreeman&style=flat&color=3d3d3d&label=clicks&abbreviated=true)
 
-[spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs) [pronouns pge](https://pronouns.cc/@prttydoe) [priv twt](https://x.com/daintydeers) [rblx](https://www.roblox.com/users/1681193139/profile?friendshipSourceType=PlayerSearch)
+[spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs) [pronouns pge](https://pronouns.cc/@prttydoe) [priv twt](https://x.com/softestfurr) [rblx](https://www.roblox.com/users/1681193139/profile?friendshipSourceType=PlayerSearch)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=novatorem&show_offline=false&background_color=0a0c10&interchange=false&bar_color=564e4e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
