@@ -16,7 +16,7 @@
 
 
 
-<p align="center">♡   #1 girl kissr ,, blk</p>
+<p align="center">♡   #1 girl kissr ,, asexual  +  infp</p>
 
 <p align="center">♡   𝙪𝙣𝙝𝙚𝙖𝙡𝙩𝙝𝙞𝙡𝙮 obsessed w mikey madison</p>
 
