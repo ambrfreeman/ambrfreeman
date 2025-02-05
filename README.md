@@ -23,7 +23,7 @@
 
 [𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://ambrfreeman.atabook.org/)
 ┊	[𝐬𝐩𝐨𝐭𝐢𝐟𝐲](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs)
-┊	[𝐫𝐨𝐛𝐥𝐨𝐱](https://www.roblox.com/users/1681193139/profile?friendshipSourceType=PlayerSearch)
+┊	[𝐭𝐰𝐢𝐭𝐭𝐞𝐫](https://twitter.com/softestfurr)
 
 </div>
 
