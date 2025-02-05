@@ -11,7 +11,7 @@
 
 <p align="center">♡ ❝ 𝐢𝐟  𝐲𝐨𝐮  𝐥𝐨𝐯𝐞  𝐦𝐞  ,  𝐤𝐞𝐞𝐩  𝐢𝐭  𝐭𝐨  𝐲𝐨𝐮𝐫𝐬𝐞𝐥𝐟  ❞ . .</p>
 
-<p align="center"><img width="200" src="https://github.com/user-attachments/assets/d719b3f8-7aad-4dfa-9a5d-c6392924a058">
+<p align="center"><img width="50" src="https://github.com/user-attachments/assets/d719b3f8-7aad-4dfa-9a5d-c6392924a058">
 </p>
 
 
