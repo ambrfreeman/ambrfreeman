@@ -14,17 +14,14 @@
 <p align="center"><img width="50" src="https://github.com/user-attachments/assets/2f349cad-86be-4446-a3db-0a599f7598e9">
 </p>
 
-
-<p align="center"><img width="50" src="https://github.com/user-attachments/assets/d719b3f8-7aad-4dfa-9a5d-c6392924a058">
-</p>
-
+<p align="center"><img width="50" src="https://github.com/user-attachments/assets/2f349cad-86be-4446-a3db-0a599f7598e9">
+</p>  
+<p align="center"><img src="https://github.com/user-attachments/assets/957026c0-33f3-49b5-a244-ee675251edd6">
+</p>  
 <p align="center"><img width="50" src="https://github.com/user-attachments/assets/2f349cad-86be-4446-a3db-0a599f7598e9">
 </p>
 
 
-
-<p align="center"><img src="https://github.com/user-attachments/assets/957026c0-33f3-49b5-a244-ee675251edd6">
-</p>
 
 <div align="center">
 
